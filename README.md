@@ -6,7 +6,7 @@
 
 
 # 联系我们
-邮箱: pocketclothingtech@163.com /o7033f@163.com
+邮箱: pocketclothingtech@163.com /  o7033f@163.com
 
 
 # 口袋衣橱隐私政策
